@@ -1,6 +1,6 @@
 # ChatGPT中文版镜像站点大全：国内直连免费使用GPT-4/GPT-4o/Claude（无需翻墙）【2025年6月更新】
 
-> 最新更新时间：2025/06 | 精选国内可用ChatGPT镜像站点 | GPT免费入口
+> 最新更新时间：2025/06/01 | 精选国内可用ChatGPT镜像站点 | GPT免费入口 |ChatGPT中文版 | GPT入口 | ChatGPT国内访问地址
 
 ## 🔥 ChatGPT国内免费入口推荐
 
